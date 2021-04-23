@@ -1,0 +1,1 @@
+![Image of Priyanka Bharti](https://scontent.fpat3-2.fna.fbcdn.net/v/t1.6435-9/91185858_240233163686522_5688511710550294528_n.jpg?_nc_cat=105&ccb=1-3&_nc_sid=09cbfe&_nc_ohc=pzudv2lYPEoAX8eixOt&_nc_ht=scontent.fpat3-2.fna&oh=116bf673148e2e6a44030a95428ec3a0&oe=60A7C5F4)
